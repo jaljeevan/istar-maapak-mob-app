@@ -1,0 +1,1 @@
+# istar-maapak-mob-app
